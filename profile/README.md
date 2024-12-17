@@ -14,8 +14,6 @@ Opera Mini download
 
 Opera browser
 
-www.opera mini.com login
-
 Opera Mini search
 
 Opera APK
